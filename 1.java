@@ -1,0 +1,2 @@
+deleting commit  command 
+hiiiiiiiiiiiiiiiii
